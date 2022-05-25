@@ -1,2 +1,2 @@
 # ECONOMICS_RMMC
-Статья: https://clck.ru/iXTd5
+Статья: https://clck.ru/iXUWa
